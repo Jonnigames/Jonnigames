@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Jonnigames I like playing minecraft and configurating minecraft servers.
+- 👀 I’m interested in Java, but I Never learned it.
+- 📫 You can reach me on Discord: Jonni#2324
